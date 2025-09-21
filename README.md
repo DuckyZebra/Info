@@ -5,4 +5,4 @@ Just a readme
 just some Roblox stuff, textures, "NYF!" game source code, etc
 
 
-a link: https://www.dropbox.com/scl/fo/5sfrgx7ci2m6enusknlim/AO5lOneq055g3KYoiINhcI8?rlkey=4fzqc0ostb4pvxkuri2ljptb... but, guess the last character, for your journey
+a link: https://www.dropbox.com/scl/fo/271mllhyq9xawrgzd9328/AN1xsmCggXwazyVgpYb73BE?rlkey=ybcazalxmrg2tv89rurjcwdp...  but, guess the last character, for your riddle: what it is, your natural head's ornament?
